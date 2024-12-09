@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning basic java and GameMaker language idk what its called
 - 💞️ I’m looking to collaborate on anything that has to do with art and graphic design
 - 📫 How to reach me: youtube  youtube.com
-- 😄 Pronouns: they/them (non-binary lol)
+- 😄 Pronouns: they/them (i am not real)
 - ⚡ Fun fact: i hate math even though its necessary
