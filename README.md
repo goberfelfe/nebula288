@@ -5,4 +5,4 @@
 - 💞️ I’m looking to collaborate on anything that has to do with art and graphic design
 - 📫 How to reach me: youtube  youtube.com
 - 😄 Pronouns: they/them (non-binary lol)
-- ⚡ Fun fact: i like undertale and deltarune (nahh really)
+- ⚡ Fun fact: i hate math even though its necessary
